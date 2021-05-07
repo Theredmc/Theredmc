@@ -11,3 +11,6 @@ Do I do this to get free adguard? Quick answer yes but does not everyone do this
 yes a math test how fun, I hope the infections rise again so it falling flat.
 I am really not good at math. 
 
+-Today is the 7.05 and Adguard still didnt send any email sad right?
+But I Emailed the makers of sensei maybe they are a bit nicer
+
